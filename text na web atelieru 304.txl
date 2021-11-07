@@ -1,1 +1,0 @@
-Text od Petra B
